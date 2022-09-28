@@ -2,7 +2,7 @@
 Try your luck🤗
 🌍FREE FB TOOLS🌍
 
-[![Typing SVG](https://readme-typing-svg.herokuapp.com?color=D90000&lines=WELCOME+TO+MY+FREE+FACEBOOK+TOOLS)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.herokuapp.com?color=D90000&lines=RANDOM+FACEBOOK+TOOLS+WILL+BE+POSTED+HERE+TOOLS)](https://git.io/typing-svg)
 
 
 
